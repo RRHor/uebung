@@ -86,7 +86,7 @@ Der am 3. Januar 1989 entdeckte Asteroid (5122) Mucha wurde im Mai 1999 nach ihm
 
 - V. Kratinová: Mucha, Alfons (1860–1939), Maler und Graphiker. In: Österreichisches Biographisches Lexikon 1815–1950 (ÖBL). Band 6, Verlag der Österreichischen Akademie der Wissenschaften, Wien 1975, ISBN 3-7001-0128-7, S. 401 f. (Direktlinks auf S. 401, S. 402).
 
--  Ahlers, Petr Wittlich; Jürgen Döring, Susanne Kähler (Hrsg.): Alfons Mucha – Triumph des Jugendstils. [Eine Ausstellung des Museums für Kunst und Gewerbe Hamburg in Zusammenarbeit mit der Mucha Foundation, Mai – Juli 1997], Braus, Heidelberg 1997. ISBN 3-894-6-195-X.
+- Ahlers, Petr Wittlich; Jürgen Döring, Susanne Kähler (Hrsg.): Alfons Mucha – Triumph des Jugendstils. [Eine Ausstellung des Museums für Kunst und Gewerbe Hamburg in Zusammenarbeit mit der Mucha Foundation, Mai – Juli 1997], Braus, Heidelberg 1997. ISBN 3-894-6-195-X.
 
 - Arthur Ellridge: Mucha [Übersetzt von Diethard H. Klein]. Komet, Frechen 2001. ISBN 3-89836-194-2.
 
